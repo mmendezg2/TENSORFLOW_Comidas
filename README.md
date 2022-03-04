@@ -5,4 +5,4 @@
 
 ![MUCHIN](https://user-images.githubusercontent.com/95297941/156854612-e06b534d-1c97-45b2-a09f-f048dacfe220.jpeg)
 
-![EMPANADA DE VERDE](https://user-images.githubusercontent.com/95297941/156854630-d7789739-16f3-4016-9855-30dd6e7b8b5a.jpeg)
+![EMPANADA DE VERDE](https://user-images.githubusercontent.com/95297941/156856612-6cb81699-3889-4ad3-88ab-db69d393ab63.jpeg)
